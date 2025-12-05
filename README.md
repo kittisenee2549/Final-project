@@ -84,3 +84,6 @@ c:\finalCs318\
 
 ---
 **สร้างด้วยความรักสำหรับการศึกษา ❤️**
+
+https://github.com/user-attachments/assets/49ce4951-4a0d-415e-abc2-be749f3b0559
+
